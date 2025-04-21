@@ -1,4 +1,5 @@
 
  "blame it on the black star ,
-![Untitled1365_20250421111206](https://github.com/user-attachments/assets/ad6c6105-4e5e-45be-a8e7-2f265b88b590)
+![Untitled1371_20250421120721](https://github.com/user-attachments/assets/adfb5602-4441-41a5-8534-f076bdde5f92)
+
  <p align="right"> ✧･ﾟ: *✧･ﾟ:* "blame it on the falling sky."
