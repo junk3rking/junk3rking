@@ -18,4 +18,4 @@
 ![IMG_7749](https://github.com/user-attachments/assets/d28aaa30-6137-4853-88ee-b93c64ec9d61)⤑.
 
 
-[strawpage](https://junk3nstein.straw.page)
+[strawpage!](https://junk3nstein.straw.page)
