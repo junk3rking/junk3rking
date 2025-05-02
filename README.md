@@ -12,4 +12,4 @@
 <p align="left"> 𝖼+𝗁 𝖿𝗂𝗇𝖾 !!! 𝗎𝗇𝗅𝖾𝗌𝗌 𝗐/ 𝖿𝗋𝗂𝖾𝗇𝖽𝗌 𝗈𝗋
 <p align="left"> 𝗁𝖺𝗏𝖾 𝖽𝗇𝖽 𝗌𝗍𝖺𝗍𝗎𝗌 !
   
-  [strawpage!](https://junk3nstein.straw.page)
+  [strawpage!](https://junk3nstein.straw.page) ★ [prn.page!](https://en.pronouns.page/@junk3nstein#google_vignette)
